@@ -7,7 +7,7 @@ I Currently Work alone and currently i like it like that, but if you want to hel
 You can support me by downloading my app :>  
 
 
-## Current App i am Working on: [Simple Notes](https://](https://github.com/Mitsuba100/SimpleNotes)
+## Current App i am Working on: [Simple Notes](https://github.com/Mitsuba100/SimpleNotes)
 
 <!--
 
